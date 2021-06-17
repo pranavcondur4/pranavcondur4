@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @pranavcondur4
+- 👋 Hi, I’m Pranav
 - 👀 I’m interested in Climate, Product/Tech, the way the world works etc.
 - 🌱 I’m currently learning to cope.
 - 💞️ I’m looking to collaborate on anything interesting.
